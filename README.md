@@ -48,7 +48,7 @@ For a more professional and high-quality proxy service, consider [OkeyProxy](htt
 
 OkeyProxy offers a complimentary proxy trial, providing new users with 1 GB of quality proxy service. This trial allows you to assess the speed and functionality of the service firsthand. Take advantage of this [free proxy trial](https://www.okeyproxy.com/proxy?link=b63b57) today!
 
-![微信图片_20240111164601 (1)](https://github.com/okeyproxy2/Using-Croxy-Proxy-for-YouTube-Unblocked/assets/155126786/46720978-dfaf-4439-a6d5-cc0204615afc)
+![企业微信截图_17187065018066](https://github.com/okeyproxy2/Using-Croxy-Proxy-for-YouTube-Unblocked/assets/155126786/3110f4a9-17ab-48b0-948e-75317d45ec17)
 
 ...
 
